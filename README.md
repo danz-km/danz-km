@@ -1,9 +1,13 @@
 ## Hi there 👋
+
 🔭 I’m currently working on my dotfiles, ctf and languages on the side
+
 🌱 I’m currently learning what I can at the moment
+
 🤔 I’m looking for help with neovim and dotfiles?
-💬 Ask me about ...
+
 😄 Pronouns: he/him and they/them
+
 ⚡ Fun fact: I LOVE FREENBECKY
 
 
