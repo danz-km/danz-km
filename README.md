@@ -8,7 +8,7 @@
 
 😄 Pronouns: he/him and they/them
 
-⚡ Fun fact: I LOVE FREENBECKY
+⚡ Fun fact: I LOVE FREENBECKY 🐇🦦🤍
 
 
 <!--
